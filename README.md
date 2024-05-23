@@ -5,5 +5,5 @@
 - Para contato: 
 - _(18) 997953429_
 - _tarcibim@gmail.com_
- -       _pressione "Alt + f4" para mais informações 🖤_
+-     _pressione "Alt + f4" para mais informações 🖤_
 ![](https://media1.tenor.com/m/FPcLrcWNmXoAAAAC/confia-leil%C3%A3o.gif)
