@@ -1,4 +1,6 @@
-### Bem-Vindo ao meurepositório chamado pneumoultramicroscópicosilicovulcanoconiótico 🍑 < (isto não é um ass, é um pêssego)
+### Bem-Vindo ao meu repositório bem minimalista
+
+- Me chamo **Tarcísio**
 
 - Sou aluno de uma escola ai..., to sofrendo, mas pelo menos é o meu último ano
 - Atualmente, atuando como estudante, tudo para ser Engenheiro de Computação =
